@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @forlehy
-- 👀 I’m interested in photography and graphic design
-- 🌱 I’m currently learning both
-- 💞️ I’m looking to collaborate on both
+- 👀 I’m interested in 3D design, notion design, coding and graphic design
+- 🌱 I’m currently learning them
+- 💞️ I’m looking to collaborate
 - 📫 How to reach me: (https://t.co/KT2Ycovxai)
 
 <!---
